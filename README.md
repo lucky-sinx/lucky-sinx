@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @lucky-sinx
-- 👀 I’m interested in plmz
-- 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 254926174*@q*.c*m
 
 <!---
